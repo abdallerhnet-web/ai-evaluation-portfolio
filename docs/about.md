@@ -52,7 +52,9 @@ I annotate text with rigorous consistency, following complex multi-step guidelin
 
 ## Education
 
-**Kaduna Polytechnic** — College Education, Kaduna
+**National Open University of Nigeria (NOUN)** — B.Sc. Marketing, *In Progress* (2026 – Present)
+
+**Kaduna Polytechnic (CABS)** — ND/HND, Cooperative Economics and Management, Completed 2023
 
 **Federal Government College, Malali** — Secondary Education, Kaduna
 
